@@ -18,4 +18,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: https://www.facebook.com/thehuy0918/
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Lazyboiz
--->Thanks for seeing my profile <3
+-->
